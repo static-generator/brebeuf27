@@ -1,7 +1,7 @@
 Jaden Mischa Carlo T. Matias
 ======
-## 9 - Brebeuf
-# CN 27
+# 9-Brebeuf
+CN 27
 ------
 > Canaman Camarines Sur
 - - -
