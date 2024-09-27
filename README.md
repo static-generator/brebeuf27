@@ -8,11 +8,9 @@ Favorite Motorsport Drivers
 3. Max Verstappen
 
 Social Media
-[Facebook](https://www.facebook.com)
+[Facebook](https://www.facebook.com/jadenmischacarlo.matias.79)
 
-[Instagram](https://www.instagram.com)
+[Instagram](https://www.instagram.com/71_1.11?igsh=MTh2ZWF5MDZsY3VqMA==)
 
-[DIscord](https://www.discord.com)
-
-[Snapchat](https://www.snapchat.com)
+[Discord](ihateyou10)
 
