@@ -6,6 +6,8 @@ Favorite Motorsport Drivers
 1. Lewis Hamilton
 2. Valentino Rossi
 3. Max Verstappen
+4. Charles Leclerc
+5. Lando Norris
 - - -
 Social Media
 ---
