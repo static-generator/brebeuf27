@@ -20,4 +20,4 @@ Social Media
 - - -
 Favorite Anime
 
-![alt text](https://static1.srcdn.com/wordpress/wp-content/uploads/2021/07/tokyo-ghoul-hide-anime-death-ending.jpg "Tokyo Ghoul")
+![alt text](https://m.media-amazon.com/images/M/MV5BYmU0ODU1MzItYzA4Yi00NjI1LWIxNWQtYmRiMTkxNGQ2Mjk1XkEyXkFqcGc@._V1_.jpg "Tokyo Ghoul")
